@@ -6,11 +6,4 @@
 - 🤔 I’m looking for help with ... 
 - 💬 Ask me about ... 
 - 📫 How to reach me: ...88055257
-- 😄 Pronouns: ... He 
-- ⚡ Fun fact: ...kkkkkkk
-- 
-### H3
-#### H4
-- school 
--teacher
--doctor
+- 😄 Pronouns: ... He
